@@ -1,4 +1,4 @@
-# magnetism_of_personality
+#The magnetism of personality
 
 Содержание книги "Личный магнетизм"
 
